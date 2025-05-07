@@ -1,0 +1,1 @@
+# Qrify_Project
